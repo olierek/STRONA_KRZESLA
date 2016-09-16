@@ -1,0 +1,1 @@
+# STRONA_KRZESLA
